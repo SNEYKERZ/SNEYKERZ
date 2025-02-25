@@ -1,5 +1,5 @@
 # 💫 About Me:
-Im currently working on my own projects<br>Graduated from Universidad del Valle with a degree in Information Systems Technology.<br>Technology in systems of information <br>backend emphasis<br>Freelance <br>
+Im currently working, Web Developer full-stack, 2 years exp <br>Graduated from Universidad del Valle with a degree in Information Systems Technology.<br>Technology in systems of information <br>backend emphasis<br>Freelance <br>
 
 
 ## 🌐 Socials:
